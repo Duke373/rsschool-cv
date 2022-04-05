@@ -10,7 +10,7 @@
 ---
 
 * Location: Minsk, Belarus
-* Phone: +375 29 328 78 05
+* Phone: +375 29 328 78 05 , +375293981887
 * Email: duke373@mail.ru
 * [GitHub](https://github.com/Duke373)
 
