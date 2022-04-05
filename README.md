@@ -1,1 +1,1 @@
-https://Duke373.github.io/rsschool-cv/cv
+https://Duke373.github.io/rsschool-cv/
